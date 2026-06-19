@@ -1,2 +1,0 @@
-# A.
-Uma ultima lembrança.
